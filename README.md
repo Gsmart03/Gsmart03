@@ -28,4 +28,5 @@ Overall, I consider myself a versatile and ambitious individual who is always wi
 - Power BI
 - SQL
 ## Let's Connect
-[linkedin](www.linkedin.com/in/adejumo-abdulsobur-b40184249)
+[Linkedin](www.linkedin.com/in/adejumo-abdulsobur-b40184249)
+[Instagram](https://www.instagram.com/debayordesigns/)
